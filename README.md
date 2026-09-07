@@ -36,7 +36,7 @@ The Blood of Dawnwalker is a single-player open-world dark fantasy action RPG de
 
 **Current Version:** v1.0
 
-**Project Link:** [https://flyn.im/6PCpxq](https://flyn.im/6PCpxq)
+**Project Link:** [https://flyn.im/Eeffel](https://flyn.im/Eeffel)
 
 ---
 
